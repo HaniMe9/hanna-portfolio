@@ -1,4 +1,3 @@
-Thanks for downloading this template!
 
 Hanna Meressa
 hani.course@gmail.com
